@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Jay
+- 👀 I’m interested in games and hacking
+- 🌱 I’m currently learning nothing im just sharing stuff with you
+- 📫 How to reach me ... discord @jay_isanerror
+- 😄 Pronouns: ... he/him
+- ⚡ Fun fact: ... im lazy
